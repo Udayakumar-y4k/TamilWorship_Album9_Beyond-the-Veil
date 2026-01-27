@@ -12,7 +12,7 @@ In the eternal day, let us live blameless forever before Your throne.
 Come quickly, righteous Judge.
 ஆமென். அல்லேலூயா!
 
-Play this majestic instrumental (Album9_Song01_I_Will_Walk_Upright_Before_You_Instrumental.mp3 ) while reading the lyrics — let the music carry your heart into upright walking before the throne of Christ
+Play this majestic instrumental ( Album9_Song01_I_Will_Walk_Upright_Before_You_Instrumental.mp3 ) while reading the lyrics — let the music carry your heart into upright walking before the throne of Christ
 
 Tamil Christian Worship Songs – Freshly Anointed
 These songs are offered freely as worship to Jesus Christ and encouragement to the remnant.
