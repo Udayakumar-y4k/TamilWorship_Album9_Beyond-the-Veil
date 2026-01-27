@@ -1,4 +1,6 @@
-# Album 9 Song 1 உத்தமனாய் உமக்குமுன்பு நடந்திடுவேன் - I Will Walk Upright Before You
+# Album 9 Beyond the Veil – Pure Worship in the Holy of Holies - (மறைப்பிற்கு அப்பால் – பரிசுத்த இடத்தின் தூய ஆராதனை)
+
+Song 1 உத்தமனாய் உமக்குமுன்பு நடந்திடுவேன் - I Will Walk Upright Before You
 
 This song of upright walking and integrity echoes Psalm 15 — who shall dwell on Your holy hill? The one who walks blamelessly, speaks truth, honors the godly, and takes no bribe. It is a prayer for holy living in the presence of God. In the eternal day, this uprightness is perfected — we dwell forever in His holy hill, the New Jerusalem (Revelation 21:3).
 Closing Prayer for the Listener
