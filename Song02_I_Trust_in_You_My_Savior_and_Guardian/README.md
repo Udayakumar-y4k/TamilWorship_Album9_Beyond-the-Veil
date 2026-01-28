@@ -19,3 +19,5 @@ All glory to the Lord Jesus Christ.
 
 Companion to the Divine Neural Network revelation and the Tamil Personal Prayer Book series.
 ஆமென் | அல்லேலூயா
+
+Play this majestic instrumental (Album9_Song01_I_Will_Walk_Upright_Before_You_Instrumental_Majestic.mp3 ) while reading the lyrics — let the music carry your heart into upright walking before the holy presence of Christ.
