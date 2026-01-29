@@ -1,4 +1,4 @@
-# My Steps Shall Not Falter - என் காலடிகள் வழுவாதையா
+# My Steps Shall Not Falter - என் காலடிகள் வழுவாதைய்யா
 
 This song of steadfast walking and trust echoes Psalm 37:23–24 and Psalm 119:133 — the Lord establishes our steps and keeps them from stumbling. It is a declaration of dependence on God’s Word and grace for uprightness. In the eternal day, this walking becomes perfect — no faltering, no stumbling, only walking in His light forever (Revelation 21:23–25).
 Closing Prayer for the Listener
