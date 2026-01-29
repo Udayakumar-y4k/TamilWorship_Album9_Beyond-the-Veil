@@ -1,4 +1,4 @@
-# என் கன்மலையே என் இரட்சக்கரே - My Rock and My Redeemer
+# என் கன்மலையே என் இரட்சகரே - My Rock and My Redeemer
 
 This song of triumphant trust and deliverance echoes Psalm 18 and 2 Samuel 22 — David’s song of praise after God delivered him from enemies. It proclaims Christ as Rock, Fortress, Shield, and Horn of Salvation. In the eternal day, this deliverance is complete — no more enemies, only perfect safety and praise before the throne (Revelation 21:4).
 Closing Prayer for the Listener
