@@ -9,6 +9,8 @@ In the eternal day, let every tongue confess You alone.
 Come quickly, exalted King.
 ஆமென். அல்லேலூயா!
 
+Play this majestic instrumental ( Album9_Song05_Who_Is_God_but_the_Lord_Instrumental_Majestic.mp3 ) while reading the lyrics — let the music fill your heart with the triumphant declaration that Jesus Christ alone is God and Savior.
+
 Tamil Christian Worship Songs – Freshly Anointed
 These songs are offered freely as worship to Jesus Christ and encouragement to the remnant.
 இந்த பாடல்கள் இயேசு கிறிஸ்துவுக்கு ஆராதனையாகவும், எஞ்சியோருக்கு ஊக்கமாகவும் இலவசமாக வழங்கப்படுகின்றன.
